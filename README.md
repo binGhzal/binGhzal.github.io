@@ -1,1 +1,0 @@
-# binGhzal.github.io
